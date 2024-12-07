@@ -1,0 +1,1 @@
+mehnatimizni qadrlang!
